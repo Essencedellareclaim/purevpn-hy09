@@ -1,4 +1,4 @@
-
+secure PureVPN Extension | free-trial + ad-blocker is the best PureVPN extension, featuring free-trial and ad-blocker. Secure, fast, and optimized for privacy.
 
 
 
